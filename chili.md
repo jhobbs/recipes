@@ -25,7 +25,7 @@ Salt
 
 2 - 4 cups of beef broth
 
-About 28 oz diced tomatos from can, with juice
+About 28 oz diced tomatoes from can, with juice
 
 1 half lime
 
@@ -43,7 +43,7 @@ About 28 oz diced tomatos from can, with juice
 
 6. Add 2 cups of beef broth or stock, adjust to medium high and cook most of the broth off, stirring almost constantly to keep the bottom from burning.
 
-7. When thick, add tomatos. If more liquid is needed, add additional beef broth. You want enough that it can simmer for an hour with the lid cracked without running out of liquid. Bring to boil, then reduce heat to low and simmer with lid cracked for an hour, stirring occassionaly 
+7. When thick, add tomatoes. If more liquid is needed, add additional beef broth. You want enough that it can simmer for an hour with the lid cracked without running out of liquid. Bring to boil, then reduce heat to low and simmer with lid cracked for an hour, stirring occassionaly 
    
 8. Remove lid, add salt and lime to taste. Simmer with lid off until at desired thickness, stirring regularly. I usually cook it until the boiling bubbles start becoming splatter risks - it's a stew, not a soup.
 
