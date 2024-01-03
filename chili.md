@@ -4,18 +4,32 @@ This is my chili recipe. I've been making it as long as I can remember. My paren
 ## Ingredients
 
 1 medium onion, white or yellow
+
 Fresh Jalapenos, sliced or diced (optional)
+
 1 tablespoon peanut oil (or other neutral oil)
+
 2 cloves garlic
+
 5 - 7 (2oz) tablespoons chile powder (just ground chile peppers, nothing else)
+
 1.5 tablespoon cumin powder
+
 1 tablespoon cayenne powder
+
 Black Pepper
+
 Salt
+
 2 pounds ground beef
+
 2 - 4 cups of beef broth
+
 About 28 oz diced tomatos from can, with juice
+
 1 half lime
+
+## Instructions
 
 1. In a dutch oven, heat the peanut oil on medium-low. Sautee the onions (and sliced jalapenos if using) for 5 minutes to soften them, but don't allow them to brown; if they start to brown, reduce the heat. They will be cooked more with the beef.
 
